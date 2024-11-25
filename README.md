@@ -17,7 +17,7 @@ I am a strong advocate for more women joining the field of software development.
 
 ## 🌱 Fun Facts About Me:
 - I’m a tea aficionado and love exploring different tea flavors 🍵.
--I have a knack for solving puzzles and brain teasers 🧩.
+- I have a knack for solving puzzles and brain teasers 🧩.
 - I’m a fan of sci-fi movies and novels 🚀.
 
 ## 🚀 Looking Ahead:
